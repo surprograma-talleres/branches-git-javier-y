@@ -1,6 +1,6 @@
 ### [Raíz de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-LapachooOooOooOoooooOOooo
+ombúes
 Solito en el monte
 Donde el día esconde
 Lumbre de la tierra
